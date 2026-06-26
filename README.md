@@ -17,3 +17,7 @@ Nesta disciplina aprendi como planejar, organizar e gerenciar projetos relaciona
 ## Conclusão
 
 A disciplina me ajudou a entender como transformar necessidades de uma empresa em soluções tecnológicas, além de mostrar a importância do planejamento e da gestão para o sucesso de um projeto.
+
+## Cursos feitos 
+
+https://www.credly.com/badges/9dfddd62-37cc-4d20-8c3f-f46a83483cdc
